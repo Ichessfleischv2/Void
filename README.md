@@ -1,0 +1,2 @@
+# Void
+SCRIPT OF VOID
